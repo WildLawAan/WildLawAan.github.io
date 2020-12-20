@@ -10,7 +10,7 @@ I am a convergent talent, and I am working on a wide variety of activities.
 It's My [youtube]
 
 'I hope your today be valuable'
-Thankyou
+Thank you.
 
 
 [youtube]: https://www.youtube.com/channel/UCnUt4bBXav3bkhhFbZ_QgCg?view_as=subscriber
