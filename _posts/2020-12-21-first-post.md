@@ -8,6 +8,9 @@ My real name 'HoJun Aan' Consists of Meaging 'Wild Law comfortable'
 I'm the ARVR contents director.
 I am a convergent talent, and I am working on a wide variety of activities.
 It's My [youtube]
-May your today be valuable
+
+'I hope your today be valuable'
 Thankyou
+
+
 [youtube]: https://www.youtube.com/channel/UCnUt4bBXav3bkhhFbZ_QgCg?view_as=subscriber
